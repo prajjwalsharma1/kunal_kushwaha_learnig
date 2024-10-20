@@ -1,1 +1,1 @@
-# kunal_kushwaha_learnig
+# kunal_kushwaha_learning
